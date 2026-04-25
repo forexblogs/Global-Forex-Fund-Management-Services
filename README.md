@@ -71,7 +71,7 @@ Just remember to take it slow. Do your homework, find a manager with a solid and
 Thinking about giving managed forex accounts a try? Take a few days to browse some verified trading records online and see what kind of strategies appeal to you. Your future self will thank you for doing the research!
 <h2>Related HashTags</h2>
 #ForexFundManagement #ForexTrading #WealthManagement #AssetManagement #Investing #GlobalFinance #CurrencyTrading #ForexManagedAccount #FinancialGrowth #ProfessionalTrading #InvestmentStrategy #ForexSignals #PassiveIncome #TradingExpert #CapitalGrowth
-<h1><strong>Contact Us</strong></h1>
+<h1><strong>Contact Us for Fund Management</strong></h1>
 <ul>
  	<li>
 <h3><strong>Telegram <span style="color: #ff0000;"><a style="color: #ff0000;" href="https://t.me/Forex_Fund_Manage" target="_blank" rel="noopener">@Forex_Fund_Manage</a></span></strong></h3>
